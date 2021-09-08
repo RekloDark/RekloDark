@@ -51,5 +51,4 @@
 [VK](https://vk.com/letonb)
 
 **Телефон** +7(921)590-61-93
-
 **Почта** RekloDark@yandex.ru
